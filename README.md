@@ -20,4 +20,4 @@ Three peer-reviewed publications in process tomography from the University of Ca
 
 ### Reach me
 
-[kylehauslaib.com](https://kylehauslaib.com) · [LinkedIn](https://www.linkedin.com/in/kylehauslaib) · [Medium](https://medium.com/@kylehauslaib)
+[kylehauslaib.com](https://kylehauslaib.com) · [LinkedIn](https://www.linkedin.com/in/kylehauslaib) · [Medium](https://medium.com/@kylehauslaib) · [Substack](https://kylehauslaib.substack.com)
